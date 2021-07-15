@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Aditya0706
+- 👀 I’m interested in Programming
+- 🌱 I’m currently learning Java
+- 💞️ I’m looking to collaborate with someone who wants to earn around 10k per day
+- 📫 You can email me on meadityaray@gmail.com
